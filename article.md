@@ -12,7 +12,7 @@ Here’s a running list of my absolute faves:
 - **The Priory of the Orange Tree** by Samantha Shannon  
   Dragons, sapphic queens, and an epic slow burn. Long? Yes. Worth it? Completely.
 
-- **An Ember in the Ashes** by Sabaa Tahir  
+- **Shadow and bone** by Leigh Bardugo  
   This series hurt me. In the best way. Also: enemies-to-lovers supremacy.
 
 - **Throne of Glass** by Sarah J. Maas  
